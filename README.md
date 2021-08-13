@@ -4,6 +4,9 @@
 
 ## 1. 한쪽다리 당기기 : https://www.youtube.com/watch?v=JfA2KHS-2LQ
 
+https://user-images.githubusercontent.com/53159064/129356141-f697439a-a892-4b98-ae59-65a7eb80e897.mp4
+
+
 ## 2. 발바닥 수건걸고 무릎펴기 : https://www.youtube.com/watch?v=I72XJxinVds
 - 반대손으로 수건잡기
 
