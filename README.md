@@ -9,6 +9,7 @@ https://user-images.githubusercontent.com/53159064/129356141-f697439a-a892-4b98-
 
 ## 2. 발바닥 수건걸고 무릎펴기 : https://www.youtube.com/watch?v=I72XJxinVds
 - 반대손으로 수건잡기
+
 https://user-images.githubusercontent.com/53159064/129356460-2d45d7a2-0d27-474e-8d3b-6debbe55c266.mp4
 
 
