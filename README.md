@@ -5,8 +5,7 @@
 ## 1. 한쪽다리 당기기 : https://youtu.be/JfA2KHS-2LQ
 
 
-## 2. 발바닥 수건걸고 무릎펴기 : https://youtu.be/I72XJxinVds
-* 반대손으로 수건잡기
+## 2. 발바닥 수건걸고 무릎펴기 : https://youtu.be/I72XJxinVd * 반대손으로 수건잡기
 
 ## 3. 옆으로 누워 다리 당기기 : https://youtu.be/rVtB1rR6cqs
 ### * 가슴, 허리 뒤로 젖히지 마세요. 무릎이 정면을 향하도록 실시, 무릎뒤로 보내기
