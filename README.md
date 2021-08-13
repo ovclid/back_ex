@@ -28,7 +28,6 @@ https://user-images.githubusercontent.com/53159064/129356576-c130f81a-e020-4e9e-
 ## 5. 다리 90도 들고 버티기 
 - 배힘으로 들기
 
-
 https://user-images.githubusercontent.com/53159064/129356622-c55d4779-5264-4787-9871-88718e662c41.mp4
 ------------
 
