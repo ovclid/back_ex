@@ -2,7 +2,7 @@
 
 ## 하루 1-2회, 운동시 호흡 참지 말기, 1-2동작씩 실시, 체력에 맞게 실시하세요
 
-## 1. 한쪽다리 당기기 : https://youtu.be/JfA2KHS-2LQ
+## 1. 한쪽다리 당기기 : https://www.youtube.com/watch?v=JfA2KHS-2LQ
 
 ## 2. 발바닥 수건걸고 무릎펴기 : https://www.youtube.com/watch?v=I72XJxinVds
 - 반대손으로 수건잡기
