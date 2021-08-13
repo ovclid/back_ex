@@ -1,4 +1,4 @@
-# back_ex
+# 신유철 여사님 전용 운동 사이트 입니다. 
 
 1. 한쪽다리 당기기 : https://youtu.be/JfA2KHS-2LQ
 
