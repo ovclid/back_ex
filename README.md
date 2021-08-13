@@ -18,5 +18,5 @@
 ## 6. 엉덩이 들고 버티기 : https://youtu.be/E-5hgNfvF-8
 
 
-## 7. 무릎대고 한쪽 다리 들기 :https://youtu.be/yiFhQJiEshk
+## 7. 무릎대고 한 다리 들기 :https://youtu.be/yiFhQJiEshk
 
