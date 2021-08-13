@@ -1,22 +1,22 @@
 # back_ex
 
-https://youtu.be/JfA2KHS-2LQ
+1. 한쪽다리 당기기 : https://youtu.be/JfA2KHS-2LQ
 
 
-https://youtu.be/I72XJxinVds
+2. 발바닥 수건걸고 무릎펴기 : https://youtu.be/I72XJxinVds
 
 
-https://youtu.be/rVtB1rR6cqs
+3. 옆으로 누워 다리 당기기 : https://youtu.be/rVtB1rR6cqs
 
 
-https://youtu.be/JwcFROOBXbc
+4. 누워서 둔부 근육 늘리기 : https://youtu.be/JwcFROOBXbc
 
 
-https://youtu.be/751qvRsMP_4
+5. 다리 90도 들고 버티기 : https://youtu.be/751qvRsMP_4
 
 
-https://youtu.be/E-5hgNfvF-8
+6. 엉덩이 들고 버티기 : https://youtu.be/E-5hgNfvF-8
 
 
-https://youtu.be/yiFhQJiEshk
+7. 무릎대고 한쪽 다리 들기 :https://youtu.be/yiFhQJiEshk
 
