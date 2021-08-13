@@ -29,13 +29,14 @@ https://user-images.githubusercontent.com/53159064/129356576-c130f81a-e020-4e9e-
 - 배힘으로 들기
 
 https://user-images.githubusercontent.com/53159064/129356622-c55d4779-5264-4787-9871-88718e662c41.mp4
+
 ------------
 
 ## 6. 엉덩이 들고 버티기 
 - 엉덩이 힘으로 엉덩이와 허리 들기, 가슴을 먼저 내밀지 마세요
 
-
 https://user-images.githubusercontent.com/53159064/129356685-7b44647d-a79c-447e-bc60-efe571125d8c.mp4
+
 ------------
 ## 7. 무릎대고 한 다리 들기 
 - 골반 및 몸통균형 유지하기
